@@ -9,6 +9,8 @@
 
 ## 通过代理 chatGPT plus 购买含有以下优点：
 
+![效果图](https://github.com/tomridder521/ChatGPT-PLUS/blob/main/111.jpg)
+
 1. 尼日利亚区 🇳🇬  chatgpt plus代充，价格 110元 (美区原价145元左右，算上虚拟卡 价格可以达到 200元左右)。
 2. 提供实时的充值发票。无质保。
 3. 目前稳定接单中。
