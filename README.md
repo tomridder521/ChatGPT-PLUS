@@ -14,8 +14,6 @@
 3. 目前稳定接单中。
 4. 直接提供成品号（包括 plus账号密码 邮箱账号密码 ，到手即可改密）。什么都不用提供。
 
-![广告图](https://github.com/TomRidder716/ChatGPT_PLUS/blob/main/20061735439095.jpg)
-
 ## 如果需要的话直接扫码添加本人微信（ysfybbxf） 即可
 
 ![微信二维码](https://github.com/TomRidder716/ChatGPT_PLUS/blob/main/00050-1981508610.png)
